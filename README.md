@@ -1,5 +1,7 @@
 # Pannkaka
 
+[Tilt](/tilt.md)
+
 ## Novel plotting: Snowflake method
 
 1. Write a one-sentence synopsis of your story
