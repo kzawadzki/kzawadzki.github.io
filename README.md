@@ -1,5 +1,5 @@
 # Pannkaka
-
+:feelsgood:
 [Tilt](/tilt.md)
 
 ## Novel plotting: Snowflake method
