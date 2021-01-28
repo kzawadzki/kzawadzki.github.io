@@ -8,26 +8,26 @@
 ## 2. tragedia
 - nagła śmierć
 - czyjeś życie zmienia się na dobre – w zły sposób
-- ból, następnie zamieszanie
+- ból i dezorientacja
 - śmierć przychodzi w samą porę
-- zamieszanie, następnie ból
-- śmierć po nieprzyjemnych zmaganiach
+- dezorientacja i ból
+- śmierć po długiej i nieprzyjemnej walce
 ## 3. niewinność
 - ktoś wcale nie jest niewinny
-- sąsiad przypadkiem wkracza w sytuację
-- aresztowali nie tego
+- przypadkiem do akcji wkracza sąsiad
+- aresztowano nie tego człowieka
 - przypadkowa ofiara
 - miłość powraca jak zły sen
 - interwencja nieznajomego o dobrych intencjach
 ## 4. wina
-- wizyta ze strony władzy (szeroko pojętej)
+- wizyta ze strony władzy (w szerokim rozumieniu)
 - zdradzony przez przyjaciół
 - kogoś rusza sumienie
 - chciwość prowadzi do zabójstwa
 - ktoś panikuje
 - ostateczna rozgrywka, ujawnienie zamiarów
 ## 5. paranoja
-- ktoś obcy przybywa by wyrównać rachunki
+- nieznajomy przybywa by wyrównać rachunki
 - głupi miał zawsze szczęście, ale nadchodzą zmiany
 - ścieżki dwójki ludzi się krzyżują, wszystko się zmienia
 - nagła zmiana (położenia, szczęścia, sympatii)
