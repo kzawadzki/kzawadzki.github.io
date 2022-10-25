@@ -1,0 +1,3 @@
+> Nie ma potrzeby pouczać o tym, że [...] sąd polski będzie sprawiedliwy i bezstronny, że będzie dociekał prawdy, że nie będzie brał pod uwagę żadnych różnic pomiędzy ludźmi z powodu ich pochodzenia czy wyznania, że będzie miał przed sobą tylko człowieka. [...] 
+> O uczciwości sądów nawet mówić nie należy, bo samo przypuszczenie uchybień w tym kierunku byłoby obrazą stanu sędziowskiego.
+> S. Bukowiecki (dyr. Departamentu Sprawiedliwości Tymczasowej Rady Stanu), podczas inauguracji polskiego sądownictwa w Królestwie Polskim; w ślad za: S. Waltoś, Ewolucja polskiego wymiaru sprawiedliwości, 2020)
